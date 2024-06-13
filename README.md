@@ -1,2 +1,2 @@
 # Viajesfronterizos-
-www.viajesfronterafrontera.com.mx
+viajesfronterafrontera.com
